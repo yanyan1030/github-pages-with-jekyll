@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Chinese lesson for Jan Reitz 
 
-I'm glad you are here. I plan to talk about ...
+The first class would be " How are you 
